@@ -1,1 +1,0 @@
-ini ada isinya cuk
